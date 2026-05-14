@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with advanced Scanner for meme coin sniper bot | token-launch-monitoring & rug-pull-detection. Featuring token-launch-monitoring and
 
 
 
